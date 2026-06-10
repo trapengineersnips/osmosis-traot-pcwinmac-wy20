@@ -1,4 +1,4 @@
-# 
+# Código aberto osmosis trading bot complementos para Mac OS | Turbo osmosis trading bot complementos para PC Windows. Com análise de dados históricos e execução de ordens de mercado — otimizado para máximo desempenho em cada plataforma.
 
 
 
